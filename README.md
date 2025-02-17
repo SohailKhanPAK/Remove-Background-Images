@@ -1,1 +1,1 @@
-<h1> removing background images free</h1>
+<h1> Removing background images free</h1>
